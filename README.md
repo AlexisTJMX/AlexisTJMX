@@ -1,5 +1,4 @@
-![](https://r67.cooltext.com/rendered/cooltext404736761261440.png)
-
+![image](https://user-images.githubusercontent.com/99784178/154790339-a73384f3-0ebe-4821-818a-d899e8786322.png)
 
 ### Hola queridos compañeros👋
 
