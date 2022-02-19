@@ -1,5 +1,8 @@
 ![image](https://user-images.githubusercontent.com/99784178/154790339-a73384f3-0ebe-4821-818a-d899e8786322.png)
 
+![image](https://user-images.githubusercontent.com/99784178/154790484-95e4fc58-ed03-48fa-9d53-77edfe7c235a.png)
+
+
 ### Hola queridos compañeros👋
 
 Este es mi perfil y quiero enseñarles un poco mas de mi mostrandoles gustos personales para que me conozcan mejor.
